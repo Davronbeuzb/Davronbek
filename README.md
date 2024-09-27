@@ -1,2 +1,0 @@
-# Davronbek
-dars 1
